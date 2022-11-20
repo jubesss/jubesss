@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jubesss
 - 👀 I’m interested in play some drums
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on whatsapp 2
+- 💞️ I’m looking to collaborate on whatsapp 2                                                          (or to find a e-girl)
 - 📫 How to reach me: AM
 
 <!---
